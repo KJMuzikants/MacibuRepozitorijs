@@ -1,0 +1,1 @@
+Ričards ir silvers.
